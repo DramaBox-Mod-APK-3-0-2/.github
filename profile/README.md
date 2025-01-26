@@ -52,6 +52,9 @@ With so many streaming platforms available, **DramaBox** stands out because it p
 - **Smooth Experience**: The app's streaming quality is excellent, with minimal interruptions. Whether you’re watching a high-definition movie or a popular drama, the experience is fluid and enjoyable.
 - **Variety of Content**: From **new releases** to **classic films**, DramaBox has something for everyone. You can explore a wide range of genres and discover something new every day.
 
+![image](https://github.com/user-attachments/assets/c0cdef4d-d2ef-4655-9e2e-d04d0e32857d)
+
+
 ## How to Download and Install DramaBox Mod APK 3.0.2
 
 ### Step-by-Step Guide for Android Users:
